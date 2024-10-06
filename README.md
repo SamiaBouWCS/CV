@@ -1,4 +1,5 @@
-# :smiley: Samia BOUKHEMLA :smiley: ![photodeprofil](SamiaPhotoCV.JPG)
+# :smiley: Samia BOUKHEMLA :smiley: 
+![photodeprofil](SamiaPhotoCV.JPG)
 ## _Après une expérience de 6 ans en tant que technicienne support informatique je suis à la recherche d'opportunité en tant que coordinatrice de projet voir chef de projet._
 
 👉 [VOICI MON PROFIL LINKEDIN](www.linkedin.com/in/samia-b-325464174) 👈:
