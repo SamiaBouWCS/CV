@@ -1,9 +1,9 @@
-# :smiley: CV de Samia BOUKHEMLA ! 
-# _Après une expérience de 6 ans en tant que technicienne support informatique je suis à la recherche d'opportunité en tant que coordinatrice de projet voir chef de projet._
+# :smiley: CV de Samia BOUKHEMLA ![(SamiaPhotoCV)]
+## _Après une expérience de 6 ans en tant que technicienne support informatique je suis à la recherche d'opportunité en tant que coordinatrice de projet voir chef de projet._
 
 👉 [VOICI MON PROFIL LINKEDIN](www.linkedin.com/in/samia-b-325464174) 👈:
 
-# EXPERIENCES PROFESSIONNELLES :woman_office_worker:
+# EXPERIENCES PROFESSIONNELLES :woman_office_worker: 
 
 Février 2023 à Juillet 2024 **EXTIA pour ORANGE BUSINESS et SEMITAN** >> _INGENIEURE CONSULTANTE SYSTEMES ET RESEAUX_
 
