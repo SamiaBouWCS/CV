@@ -59,4 +59,9 @@ Mai 2013 – Juin 2014 & Aout 2014 – Janv. 2016 **IMA Technologies** >> _TELEC
 - Janvier 2017 – Avril 2017 : POEC Technicien Helpdesk par **FUTURSKILL MANPOWER** à L’**ENI** à Saint Herblain
 - Sept 2010 – Avril 2011: 1ère année de BTS Gestion Informatique **Lycée La Joliverie** à Saint Sébastien Sur Loire 
 - Sept 2005 – Juin 2010 : BEP Comptabilité & BAC Professionnel Comptabilité **Lycée Jeanne Bernard** à Saint Herblain.
- 
+
+# HOBBIES :game_die: 
+- Jeux de sociétés
+- Jardinage
+- Bricolage
+- Vélo
